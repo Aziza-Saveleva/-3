@@ -6,4 +6,4 @@ some python functions
 
 new python code
 
-thare is info from master
+i am old senior and i want more millions

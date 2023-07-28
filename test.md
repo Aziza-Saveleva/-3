@@ -6,4 +6,4 @@ some python functions
 
 new python code
 
-i am old senior and i want more millions
+there is info from vetka2
